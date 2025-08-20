@@ -1,1 +1,1 @@
-i struggle with gasping the content of gitlap but i managed to pull through because of determination and hard work.
+i struggle with grasping the content of gitlap but i managed to pull through because of determination and hard work.
