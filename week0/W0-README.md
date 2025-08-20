@@ -1,1 +1,1 @@
-# pre-learning-wtc
+i struggle with gasping the content of gitlap but i managed to pull through because of determination and hard work.
